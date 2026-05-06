@@ -1,1 +1,1 @@
-# parsanaimit-art.github.io
+# clubjudomtl.github.io
